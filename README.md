@@ -1,2 +1,0 @@
-# betulizci.github.io
-Test
